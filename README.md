@@ -47,8 +47,8 @@ Add it to our growing directory here:
 ## 🙌 Stay Connected:
 - Website: [https://groupsop.com](https://groupsop.com)  
 - Twitter/X: [@groupsop69](https://x.com/groupsop69)  
-- Instagram: [@groupsop](https://www.instagram.com/groupsop)  
-- Threads: [@groupsop](https://www.threads.net/@groupsop)
+- Instagram: [@groupsop](https://www.instagram.com/groupsop69)  
+- Threads: [@groupsop](https://www.threads.net/@groupsop69)
 
 ---
 
